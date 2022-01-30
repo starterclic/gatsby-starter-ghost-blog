@@ -1,0 +1,1 @@
+https://assets.digitalpress.blog/*
